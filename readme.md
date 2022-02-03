@@ -1,3 +1,2 @@
-whats up
-oi
+whats up oi
 aye aye aye
